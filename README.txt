@@ -1,0 +1,1 @@
+HI. I'm Dami, a design enthusiast.
